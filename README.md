@@ -1,4 +1,6 @@
-# Therapeutic Fasting  Dr. Otto Buchinger
+# Therapeutic Fasting - Dr. Otto Buchinger on YouTube Tips From Europe
+Therapeutic Fasting - Dr. Otto Buchinger  is an episode on my youtube channel #TipsFromEurope
+
  Therapeutic Fasting Pro.Dr. Otto Buchinger, 
  Therapeutic Fasting
  Miracle successful,
