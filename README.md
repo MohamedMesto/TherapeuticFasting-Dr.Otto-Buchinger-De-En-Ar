@@ -1,4 +1,4 @@
-# TherapeuticFasting-Dr.Otto-Buchinger
+# Therapeutic Fasting  Dr. Otto Buchinger
  Therapeutic Fasting Pro.Dr. Otto Buchinger, 
  Therapeutic Fasting
  Miracle successful,
