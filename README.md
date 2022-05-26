@@ -22,3 +22,9 @@ Wie man ein glückliches gesundes Leben führt
  كيف تعيش حياة صحية سعيدة
  ***********************************************************
  
+## Contributors
+- Mohamed Mesto, m.mesto@campus.tu-berlin.de  , Mohamedmesto111@gmail.com
+
+## License & copyright
+© Mohamed Mesto
+License under the [MIT License] (LICENSE).
